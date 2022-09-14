@@ -9,3 +9,8 @@
 - 🌱 I’m currently learning 👨‍🎓
 - 🥅 2022 Goals: Learn more about coding 🤓
 - ⚡ Fun fact: I love picture editing and competitive gaming 🎮
+### Connect with me:
+
+- Instagram : insanyhimself
+- Facebook : Insany J.
+- Twitter : insanysays
